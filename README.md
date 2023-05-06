@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **SQL Server**
 
-- ⚡ Fun fact **I love wrestling**
+- ⚡ Fun fact **I love wrestling and comics like Dragon Ball Z**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
